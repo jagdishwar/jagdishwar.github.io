@@ -1,4 +1,4 @@
 # jagdishwar.github.io
-BLOG 🕸SITE
+SImEPlE BLOG 🕸
 
 Site visit - jagdishwar.github.io
